@@ -24,4 +24,4 @@ Hi, My name is LuckyGuy. A professional `Discord Bot Developer`<br>
 If you're looking for a Discord Bot Developer, you can hire me:<br>
 DM me here: `Lucky Guy#3379`<br>
 
-Ijou desu~
+Ijou desu~~
